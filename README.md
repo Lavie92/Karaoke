@@ -6,8 +6,6 @@ Bạn có biết rằng chỉ cần sử dụng ứng dụng tuyệt vời này,
 
 Đúng vậy, với "KaraokeOm", bạn sẽ có giọng hát ngọt ngào như đường phèn ngay lập tức, không cần tập luyện!
 
-Chỉ cần một thao tác đơn giản là cộng hai phân số, bạn đã có thể hát hay như Diva, Sơn Tùng M-TP hay Đen Vâu! 🎵
-
 Chỉ cần download và sử dụng app Phân Số Thần Thông này, bạn sẽ có ngay khả năng hát hay như Diva, Sơn Tùng M-TP hay Đen Vâu! 🎶
 
 Thật tuyệt vời phải không nào? 🤩
